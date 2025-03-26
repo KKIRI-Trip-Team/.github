@@ -1,1 +1,1 @@
-# Team - KKIRI-TRIP(끼리트립)
+# Team - KKIRI-Trip(끼리트립)
